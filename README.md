@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Buythederp
 - 👀 I’m interested in NFT's and Crypto trading
-- 🌱 I’m currently learning how to creat and NFT project
+- 🌱 I’m currently learning how to create an NFT project
 - 💞️ I’m looking to collaborate on said project
 - 📫 How to reach me: cryptosidegains@gmail.com / @Buythederp on twitter
 
